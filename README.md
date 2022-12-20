@@ -1,1 +1,0 @@
-# Prettiest-Countries-In-the-World
